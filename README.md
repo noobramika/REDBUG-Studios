@@ -12,18 +12,6 @@ Welcome to REDBUG STUDIOS! We are a creative studio that provides top-notch serv
 
 - **Graphic Design:** From creating eye-catching logos to designing stunning visuals, our graphic design team is here to help you bring your ideas to life. We offer a wide range of options and ensure that your designs are tailored to your specific needs.
 
-### Testimonials
-
-> "The editing services I hired from REDBUG STUDIOS couldn't have been better. They made it possible for me to focus on my content while delivering high-quality edits. I highly recommend this company." - Lakmal Sampath
-
-> "I was looking for an editing service that not only focused on visuals but also conveyed the right message. REDBUG Studios exceeded my expectations and did an amazing job." - Fathima Ameena
-
-> "I needed quick proofing for my YouTube video, and REDBUG Studios delivered. They completed the job ahead of schedule, and the service was fantastic." - Oshani Sandunika
-
-### Pricing
-
-We offer competitive pricing for our services, tailored to your specific needs. Please refer to our pricing tables for more details.
-
 ### Contact Us
 
 To place your order or get in touch with us, please visit our Contact page. We are located in Sri Lanka, and our working hours are Monday to Saturday from 9am to 10pm. You can also reach us via email at redbugst@gmail.com.
